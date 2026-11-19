@@ -2,7 +2,8 @@
 # CS3-2Q_Arayat_G8
 
 ## Vince Evan D. Bobila
-
+- Why are all the numbers afraid of 67? because 67 ate 9! HAHAHAHAHA (please laugh)
+ I'm Vince from 9 - Arayat. I like eating, sleeping, and playing video games.
 
 
 ## Raiden Wayne L. Yumul
