@@ -6,7 +6,7 @@
 
 
 ## Raiden Wayne L. Yumul
-
+- Student in Arayat, Class number 17
 
 
 ## Louise Audreana B. Canto
